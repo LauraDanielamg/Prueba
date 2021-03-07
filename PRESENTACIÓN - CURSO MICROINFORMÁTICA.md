@@ -6,13 +6,13 @@
 
 *LÓGICA*
 
-![Puzzle, Lady, Pieza De Ajedrez](https://cdn.pixabay.com/photo/2016/10/03/23/55/puzzle-1713214__340.jpg)
+![La lógica nos hace más libres y se puede practicar a cualquier edad»](https://static1.abc.es/media/familia/2021/01/13/aprender-kT0H--620x349@abc.jpg)
 
 
 
 *CREATIVIDAD*
 
-![La Lectura, Niña, Ocio, Mujer, Mujer Joven, Mujeres](https://cdn.pixabay.com/photo/2020/05/15/13/28/reading-5173530_960_720.jpg)
+![Creatividad: cómo ser más creativo de 9 maneras que funcionan](http://www.christiandve.com/wp-content/uploads/2018/03/creatividad-potenciar-ejercitar-desarrollar.jpg)
 
 
 
