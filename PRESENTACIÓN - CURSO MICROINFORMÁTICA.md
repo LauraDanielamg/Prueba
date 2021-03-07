@@ -2,39 +2,31 @@
 
 ¿¡Hola!? ¿Hay alguien allí? Mi nombre es  Laura Daniela Morales Gutiérrez. 
 
-
-
-
-
 ### Tres palabras que me definen:
 
 *LÓGICA*
 
-![logica](C:\Users\User\Documents\presentacion\IMAGENES\logica.jpg)
+![10 características que definen a una persona inteligente - Factor Nueve](https://storage.googleapis.com/www-factornueve-com/2020/03/c6b990df-inteligente.jpg)
+
+
 
 *CREATIVIDAD*
 
-![dibujo](C:\Users\User\Documents\presentacion\IMAGENES\dibujo.jpg)
+![Creatividad e innovación en mi entorno – Humant Talent](https://humantalent.es/web/wp-content/uploads/2016/09/creatividad-2.jpg)
 
 
 
 *FAMILIA*
 
-![hermanos](C:\Users\User\Documents\presentacion\IMAGENES\hermanos.jpg)
-
-
+![Cómo crear un proyecto de familia](https://dev-res.thumbr.io/libraries/99/04/22/lib/1501505331677_1.jpg?size=854x493s&ext=jpg)
 
 ### Dos ofertas de trabajo que me interesan.
 
 A corto plazo:
 
-![oferta1](C:\Users\User\Documents\presentacion\IMAGENES\oferta1.png)
-
 https://www.infojobs.net/madrid/dependiente-vodafone-cc-gavia/of-ic936d5d52242208d48b835a44ca6a5?applicationOrigin=search-new&page=1&sortBy=RELEVANCE
 
 A futuro:
-
-![oferta2](C:\Users\User\Documents\presentacion\IMAGENES\oferta2.png)
 
 https://www.tecnoempleo.com/analista-programador-java-microservicios-madrid/java-microservicios/rf-dbc71eb4e92b2qf98db6
 
