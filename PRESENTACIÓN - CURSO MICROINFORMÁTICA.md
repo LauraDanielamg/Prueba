@@ -22,13 +22,13 @@
 
 ### Dos ofertas de trabajo que me interesan.
 
-A corto plazo:
+A corto plazo:![oferta1](C:\Users\User\Documents\presentacion\oferta1.png)
 
 https://www.infojobs.net/madrid/dependiente-vodafone-cc-gavia/of-ic936d5d52242208d48b835a44ca6a5?applicationOrigin=search-new&page=1&sortBy=RELEVANCE
 
 A futuro:
 
-https://www.tecnoempleo.com/analista-programador-java-microservicios-madrid/java-microservicios/rf-dbc71eb4e92b2qf98db6
+https://www.tecnoempleo.com![oferta2](C:\Users\User\Documents\presentacion\oferta2.png)/analista-programador-java-microservicios-madrid/java-microservicios/rf-dbc71eb4e92b2qf98db6
 
 ### Mi experiencia de vida en el último año...
 
