@@ -12,7 +12,7 @@
 
 *CREATIVIDAD*
 
-![Creatividad: cómo ser más creativo de 9 maneras que funcionan](http://www.christiandve.com/wp-content/uploads/2018/03/creatividad-potenciar-ejercitar-desarrollar.jpg)
+![Día Mundial de la Creatividad y la Innovación](https://noticias-pe.laiglesiadejesucristo.org/media/960x540/DM-Creativ-Innovac-1.jpg)
 
 
 
