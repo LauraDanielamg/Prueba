@@ -12,7 +12,7 @@
 
 *CREATIVIDAD*
 
-![Día Mundial de la Creatividad y la Innovación](https://noticias-pe.laiglesiadejesucristo.org/media/960x540/DM-Creativ-Innovac-1.jpg)
+![Pensamiento creativo: La creatividad, generadora de transformación -  Atesora Group ®](https://www.atesoragroup.com/recursos/wp-content/uploads/2020/08/CREATIVIDAD.jpg)
 
 
 
