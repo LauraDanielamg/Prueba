@@ -6,13 +6,13 @@
 
 *LÓGICA*
 
-![10 características que definen a una persona inteligente - Factor Nueve](https://storage.googleapis.com/www-factornueve-com/2020/03/c6b990df-inteligente.jpg)
+![Puzzle, Lady, Pieza De Ajedrez](https://cdn.pixabay.com/photo/2016/10/03/23/55/puzzle-1713214__340.jpg)
 
 
 
 *CREATIVIDAD*
 
-![Creatividad e innovación en mi entorno – Humant Talent](https://humantalent.es/web/wp-content/uploads/2016/09/creatividad-2.jpg)
+![La Lectura, Niña, Ocio, Mujer, Mujer Joven, Mujeres](https://cdn.pixabay.com/photo/2020/05/15/13/28/reading-5173530_960_720.jpg)
 
 
 
@@ -22,13 +22,13 @@
 
 ### Dos ofertas de trabajo que me interesan.
 
-A corto plazo:![oferta1](C:\Users\User\Documents\presentacion\oferta1.png)
+A corto plazo:
 
 https://www.infojobs.net/madrid/dependiente-vodafone-cc-gavia/of-ic936d5d52242208d48b835a44ca6a5?applicationOrigin=search-new&page=1&sortBy=RELEVANCE
 
 A futuro:
 
-https://www.tecnoempleo.com![oferta2](C:\Users\User\Documents\presentacion\oferta2.png)/analista-programador-java-microservicios-madrid/java-microservicios/rf-dbc71eb4e92b2qf98db6
+https://www.tecnoempleo.com/analista-programador-java-microservicios-madrid/java-microservicios/rf-dbc71eb4e92b2qf98db6
 
 ### Mi experiencia de vida en el último año...
 
